@@ -1,2 +1,0 @@
-# NOOB
-Hi im UMARKSHEKH
